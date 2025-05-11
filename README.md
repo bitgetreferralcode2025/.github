@@ -2,6 +2,8 @@
 </header>
 <section>
 <p>If you're looking to start trading crypto in 2025, the <strong>Bitget referral code</strong> <code>qsk6</code> is your golden ticket to unlocking up to <strong>6200 USDT</strong> in rewards and enjoying a <strong>50% discount on trading fees</strong>. Whether you're a beginner or an experienced trader, Bitget’s sign-up offers and trading incentives are designed to boost your crypto journey from the start.</p>
+
+<img src="https://images.mirror-media.xyz/publication-images/SbHCdHzkBYv30lb6BB8o8.png" alt="Bitget referral code" width="1080">
 </section>
 <section>
 <h2>What Is Bitget?</h2>
